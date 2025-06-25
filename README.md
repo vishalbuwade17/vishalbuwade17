@@ -7,7 +7,6 @@
 
 - 📫 How to reach me **vishalbuwade17@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1vC7L7Z3xdoPUYPQYzTPwbVgTZmeaLBgD/view?usp=drivesdk](https://drive.google.com/file/d/1vC7L7Z3xdoPUYPQYzTPwbVgTZmeaLBgD/view?usp=drivesdk)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
